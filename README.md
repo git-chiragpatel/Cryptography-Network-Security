@@ -10,4 +10,5 @@ GK(DU) PYP
 ![image](https://user-images.githubusercontent.com/127727500/230777796-76271cc1-7851-4dcc-ad42-c134fd88c921.png)
 
 GK(DU) Ist sessional
-![image](https://user-images.githubusercontent.com/127727500/230777869-8dc41f42-c302-470b-9275-3eeeb8ab765d.png)
+![image](https://user-images.githubusercontent.com/127727500/230778178-37aa0ada-fd7b-4ec4-b527-92f45fb521a8.png)
+
